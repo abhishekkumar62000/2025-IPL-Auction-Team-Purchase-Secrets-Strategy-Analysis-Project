@@ -1,5 +1,9 @@
 # 🏏 2025 IPL Auction Team Purchase Secrets Strategy Analysis Project
-![Uploading Project Banner .jpg…]()
+![WhatsApp Image 2024-12-08 at 00 33 17_687db4ef](https://github.com/user-attachments/assets/0431822e-4970-471a-bc8b-f87a0cb49215)
+![WhatsApp Image 2024-12-08 at 00 33 14_bd079007](https://github.com/user-attachments/assets/bbe2d03f-2f26-47a9-af90-4b12b42bc11f)
+![WhatsApp Image 2024-12-08 at 00 33 16_96416182](https://github.com/user-attachments/assets/babdca36-7464-4263-b887-9941f4b285f6)
+![Uploading WhatsApp Image 2024-12-08 at 00.33.14_bd079007.jpg…]()
+
 
 
 ---
